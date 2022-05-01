@@ -5,7 +5,7 @@
 ## **Yellow 🌻**
 - represents wisdom, laughter and happiness.
 
-I chose this design to dominate the optimistic perspective in the universe. As the yellow color serves as the light in the dark background. Therefore, in every darkness there will a light that serves hope and purpose to the people.
+I chose this design to dominate the optimistic perspective in the universe. As the yellow color serves as the light in the dark background. Therefore, in every darkness there will be a light that serves hope and purpose to the people.
 
 ### References:
 - https://www.youtube.com/watch?v=eOHwJDELOwU
